@@ -2,7 +2,7 @@
 
 ## About Me: 👓
 I am a BCIS student at **Auckland University of Technology, Auckland, New Zealand**. </br>
-I love learning new technologies and problem solving.
+I love learning new technologies, problem solving and the occassional epic fantasy book.
 
 I am currently working on something cool! 💻
 
